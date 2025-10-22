@@ -1,1 +1,1 @@
-# Obligatorisk-oppgave-2-
+:)
